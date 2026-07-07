@@ -1,16 +1,24 @@
-## Hi there 👋
+## ⋮ ⌗ ┆） #  Ody —  ✙
+‎Hihihihihi I'm Isaac/Ody (whichever you like more idm) I just wanna say that I mightttt be a bit awkard if we just meet I'm not good with one-on-one convos tbh
+Also, I'm spanish so if I make any grammar mistakes, it's because of that
 
-<!--
-**0dxny/0dxny** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+ ## ‎﹕﹒★﹒ intro
+‎I'm 15 (turning 16), and I usually only add people my age range, since I'm pretty uncomfortable talking with people that are extremely older or younger than me ((SO PLEASEEE DONT LIE ABT IT IM BEING 100% SRS))
 
-Here are some ideas to get you started:
+Uhhh I usually don't mind doing unserious rps, but I'll immediately stop if it somehow turns sexual. I'm sorry but I'm only comfortable doing that with my partner even if its in a joking way.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+And don't vent to me if we just met bro I only allow that with people I'm close/friends with. And if I somehow let you vent, just take into consideration than I'm not the best with words, so don't expect 10/10 comfort.
+
+ALSO PLSPLSPLS INTERACT WITH ME I'M GENUIENLY SUPER FRIENDLY AND I REALLY DON'T MIND INTERACTING WITH STARNGERS!!
+
+## ﹕﹒꩜﹒ interests
+‎JJK, Blue Lock, ANYTHING ROBLOX RELATED, Minecraft, Fnaf, Death Note, Horror game fans (like silent hill and shi), Gachiakuta and yea 
+
+## ‎﹕﹒ᶻ 𝗓 𐰁﹒ dni
+
+          → Proshippers or anything under that umbrella (darkshippers and all that bullshiiii)
+          → Bigots (Racists, homophobes, transphobes, etc.)
+          → Jinx fans (the manhwa)
+          → Zoophiles
+          → Pedophiles
+          → If you're genuienly problematic
