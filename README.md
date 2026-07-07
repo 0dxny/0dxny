@@ -1,4 +1,5 @@
 <img src="IMG_2544.jpg" alt="satosugu" width="600">
+
 ## ⋮ ⌗ ┆） #  Ody —  ✙
 ‎Hihihihihi I'm Isaac/Ody (whichever you like more idm) I just wanna say that I mightttt be a bit awkard if we just meet I'm not good with one-on-one convos tbh
 Also, I'm spanish so if I make any grammar mistakes, it's because of that
