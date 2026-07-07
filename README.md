@@ -2,7 +2,12 @@
 
 ## ⋮ ⌗ ┆） #  Ody —  ✙
 ‎Hihihihihi I'm Isaac/Ody (whichever you like more idm) I just wanna say that I mightttt be a bit awkard if we just meet I'm not good with one-on-one convos tbh
+
 Also, I'm spanish so if I make any grammar mistakes, it's because of that
+
+I'm mostly in the JJK area, in front of the bakery, or at the docks.
+
+If i'm in the UUSMP/Minecraft area is becaues i'm probably hanging out with my partner
 
  ## ‎﹕﹒★﹒ intro
 ‎I'm 15 (turning 16), and I usually only add people my age range, since I'm pretty uncomfortable talking with people that are extremely older or younger than me ((SO PLEASEEE DONT LIE ABT IT IM BEING 100% SRS))
