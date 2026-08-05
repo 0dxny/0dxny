@@ -21,7 +21,7 @@ And don't vent to me if we just met bro I only allow that with people I'm close/
 ALSO PLSPLSPLS INTERACT WITH ME I'M GENUIENLY SUPER FRIENDLY AND I REALLY DON'T MIND INTERACTING WITH STARNGERS!!
 
 ## ﹕﹒꩜﹒ interests
-‎JJK, Blue Lock, ANYTHING ROBLOX RELATED, Minecraft, Fnaf, Death Note, Horror game fans (like silent hill and shi), Gachiakuta and yea 
+‎JJK, Blue Lock, ANYTHING ROBLOX RELATED, Minecraft, Fnaf, Death Note, Horror games (like silent hill and shi), Gachiakuta, and prob more but im too lazy to type them all
 
 ## ‎﹕﹒ᶻ 𝗓 𐰁﹒ dni
 
