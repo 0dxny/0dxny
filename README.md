@@ -1,13 +1,13 @@
 <img src="IMG_2544.jpg" alt="satosugu" width="600">
 
 ## ⋮ ⌗ ┆） #  intro
-‎Hihihihihi I'm Isaac/Ody (whichever you like more idm) I just wanna say that I mightttt be a bit awkard if we just meet I'm not good with one-on-one convos tbh
+‎Hihihihihi I'm Isaac/Ody (whichever you like more idm) I just wanna say that I mightttt be a bit awkard if we just meet I'm not good with one-on-one convos tbh.
 
-Also, I'm spanish so if I make any grammar mistakes, it's because of that
+Also, I'm spanish so if I make any grammar mistakes, it's because of that.
 
 I'm mostly in the JJK area or at the docks.
 
-If i'm in the UUSMP/Minecraft area is becaues i'm probably hanging out with my partner.
+If i'm in the UUSMP/Minecraft area it’s becaues i'm probably hanging out with my partner.
 
 If u wanna talk more my discord is 0dxny_ 
 
@@ -28,7 +28,7 @@ ALSO PLSPLSPLS INTERACT WITH ME I'M GENUIENLY SUPER FRIENDLY AND I REALLY DON'T 
 
           → Proshippers or anything under that umbrella (darkshippers and all that bullshiiii)
           → Bigots (Racists, homophobes, transphobes, etc.)
-          → Jinx fans (the manhwa) and anything manhwa similar to that
+          → Jinx fans (the manhwa) and any manhwa similar to it
           → Zoophiles
           → Pedophiles
           → If you're problematic in general just block me
